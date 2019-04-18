@@ -1,4 +1,4 @@
-# [اپل استور مشهد](https://aapks.com/apk/xhubs/)
+# [اپل استور مشهد](https://i-store.org/)
 
 About appledoc
 ==============
